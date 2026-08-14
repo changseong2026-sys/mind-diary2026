@@ -1,0 +1,1 @@
+# mind-diary2026
